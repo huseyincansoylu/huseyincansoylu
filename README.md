@@ -6,4 +6,4 @@ Software engineer with 4+ years of experience building production web apps acros
 
 Open to full-stack, frontend and backend roles.
 
-✉️ hcsoylu.dev@gmail.com · [LinkedIn](https://linkedin.com/in/hcsoylu)
+📍 Istanbul, Türkiye · ✉️ hcsoylu.dev@gmail.com · [LinkedIn](https://linkedin.com/in/hcsoylu)
